@@ -1,6 +1,6 @@
 ## Movies
 
 
-`Marriage Story (6th March 2020)` < \br>
+`Marriage Story (6th March 2020)` \
 `Predestination (7th March 2020)` 
 
